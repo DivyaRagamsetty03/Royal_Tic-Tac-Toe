@@ -7,3 +7,6 @@ Whether you challenge the **King, play against another citizen, or compete with 
 **Will you master the strategy, defeat your rivals, and earn the King’s rewards?**
 
 **Enter the kingdom. Accept the challenge. Become a legend.**
+
+
+**NOTE: “Your account is saved in the browser on the device where you sign up. The same email will not automatically be recognized on another phone, tablet, or computer. To use the app on a different device, create an account on that device and game will start from BEGINING.”  -THANKYOU for understandung**
